@@ -1,6 +1,6 @@
 ### Hi, I'm Ele 👋
 
-Well, that's a shortcut for my name, my full name it's Eleazar. Thought it happens to get misspronounce, even with folks that share my own language, Spanish. So, so far you know is the name of the letter "L" + the word "random" in Spanish you will be fine.
+Well, that's a shortcut for my name, my full name it's Eleazar. Thought it happens to get misspronounce, even with folks that share my own language, Spanish. So far, what you need to know is the name of the letter "L" + the word "random" both in Spanish and you will be fine.
 
 I'm a graduate of Computer Science in ULL. And this has brought a lot of good and not so good consequences 😉
 
